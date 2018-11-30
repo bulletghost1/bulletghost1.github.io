@@ -1,1 +1,1 @@
-# bulletghost1.github.io
+# bulletghost1-github.io
